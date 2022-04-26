@@ -1,0 +1,1 @@
+# Laba_7_2_modul
